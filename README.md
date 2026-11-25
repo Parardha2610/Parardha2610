@@ -1,4 +1,4 @@
-## Hello there, my name is Parardha Pravin Tarde the son of the actor Pravin Vitthal Tarde. i was born on the 26th of october in the year 2011. i like to play games like Call of Duty:Mobile, Minecraft and GTA 4. i also like clicking photos and making random creativ videos. i live in Pune which is in Maharashtra, India. i am good at swimming, 3d graphics using blender, i also have a youtube channel called Diezel Gaming X.
+## Hello there, my name is Parardha Pravin Tarde the son of the actor Pravin Vitthal Tarde. i was born on the 26th of october in the year 2011. i like to play games like Call of Duty:Mobile, Minecraft and GTA 4. i also like clicking photos and making random creativ videos. i live in Pune which is in Maharashtra, India. i am good at swimming, 3d graphics using blender, i also have a youtube channel called Diezel Gaming X. my catch phrase is "yo".
 
 <!--
 **Parardha2610/Parardha2610** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
